@@ -1,7 +1,7 @@
   ![](https://komarev.com/ghpvc/?username=jadehariey&label=🕊️++&color=ffd1e8)
 
 <div align="center">
-  <img src="https://media1.tenor.com/m/i5R29EWYun4AAAAC/mizisua-suamizi.gif">
+  <img src="https://i.postimg.cc/NfvHky8Y/IMG-4468.png">
 </div>
 
 ‎<div align="center">
