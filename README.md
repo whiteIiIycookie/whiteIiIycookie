@@ -7,5 +7,5 @@
 ‎<div align="center">
 ✦ ‎  <ins>sua</ins> / eden ‎  ‎𓏵   they / she / it   𓏵   -13 / 18+ dni
 
- [prns.cc](https://pronouns.cc/@yourclematis) 𓏵 [gimmicks old](https://saintdoughael.straw.page/) 𓏵 [atabook](https://subspacetripmine.atabook.org/)
+ [prns.cc](https://pronouns.cc/@yourclematis) 𓏵 [main wip rentry](https://rentry.co/crimsonstaindress) 𓏵 [atabook](https://subspacetripmine.atabook.org/)
 </div>
